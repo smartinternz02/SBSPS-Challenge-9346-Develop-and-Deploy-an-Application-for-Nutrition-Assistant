@@ -1,4 +1,4 @@
-Certificates & Bedges
+Certificates & Badges
 
 Online Project Submission is also available on the link given below :-
 
